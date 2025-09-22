@@ -3,7 +3,7 @@
  
 ㅤ
 :¨ ·.· ¨: ⠀꒰ fictkin . .dbls dni . ꒱ 
-`· . ୨୧. ⠀꒰edward 𓂋  stede ♡   ⠀   ͡꒱⠀  ۫
+`· . ୨୧. ⠀꒰edward 𓂋  eddie ♡   ⠀   ͡꒱⠀  ۫
 
 ˗ˏ   strawpage soon !! . . ilovemyboyfie  ;-3 ⠀⠀ ᵎᵎ
 
