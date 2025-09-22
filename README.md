@@ -1,17 +1,11 @@
 
+ wip .. .gulp
+ 
+ ; fictkin  !  . .  dbls dni , strawpage soon !! . . ilovemyboyfie  ;-3 ⠀⠀ ᵎᵎ 
+
+
   
-![Untitled501_1](https://github.com/user-attachments/assets/126d216e-8260-4252-a5e4-1dc2973e8c2e)
-   ; fictkin  !  . .  dbls dni , strawpage soon !! . . ilovemyboyfie  ;-3 ⠀⠀ ᵎᵎ 
-  
-  
-  
-  
-  
-  
-  
-  
-  
-  
+
   ╭─────────────────────────────────────────╮
   
 
