@@ -1,16 +1,20 @@
-## Hi there 👋
 
-<!--
-**blackbonnet/blackbonnet** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+  
+![Untitled501_1](https://github.com/user-attachments/assets/126d216e-8260-4252-a5e4-1dc2973e8c2e)
+   ; fictkin  !  . .  dbls dni , strawpage soon !! . . ilovemyboyfie  ;-3 ⠀⠀ ᵎᵎ 
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  ╭─────────────────────────────────────────╮
+  
 
-Here are some ideas to get you started:
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=ab2a3u6b8cjitzbay6obl1hzp&cover_image=true&theme=natemoo-re&show_offline=false&background_color=000000&interchange=true&bar_color=c0ed7e&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+  ╰─────────────────────────────────────────╯   
